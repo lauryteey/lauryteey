@@ -1,4 +1,4 @@
-# Hi there, i'm Laura <img src="https://media.tenor.com/uF7WQnFqGnsAAAAj/cecesrhaccc1-on-tiktok-cecesrhaccc1.gif" alt="Waving cat" width="40" />
+# Hi there, I'm Laura <img src="https://media.tenor.com/uF7WQnFqGnsAAAAj/cecesrhaccc1-on-tiktok-cecesrhaccc1.gif" alt="Waving cat" width="40" />
 
 ### 💻 What I've worked with
 
